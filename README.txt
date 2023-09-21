@@ -1,0 +1,5 @@
+I watched the two videos for this assignment/question that you provided. From those two videos, I learned that the answer to your question is pretty simple: upskilling. Since we all struggle to secure jobs in this era of fast-paced technological development, we need to be prepared for what's coming soon. Artificial Intelligence (AI)-powered software, business models, projects, and many other facets of our activities will be taken over by AI. To counter this transformation and thrive in this environment, we need to be prepared.
+
+How can I prepare myself for what's coming? The answer is straightforward: we need to be creative, think more like humans and less like computerized beings, and upgrade our knowledge of computer-based technology to stay in step with this rapidly advancing field. Who knows, it might even start to progress at the speed of light. In this new world, acquiring new skills is essential. We must learn to live and live to learn, ensuring that we stay aligned with current technology and life.
+
+I genuinely appreciate PwC for being there to assist us in navigating this technological landscape and clearing a path for our future.
